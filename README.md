@@ -1,4 +1,4 @@
-https://twitter.com/github/status/1083053551851655168
+
 
 <h1 align="center">Merhaba 👋, ben Narmin</h1
 
